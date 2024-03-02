@@ -1,2 +1,0 @@
-# Astetic51
-Hi
